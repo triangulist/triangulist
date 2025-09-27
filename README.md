@@ -1,5 +1,5 @@
 <div align="center">
-<a href="https://www.tumblr.com/phoneyotc/795346097658855424"><img src="https://file.garden/ZSKBCu3coQFc9mb7/git" width="570px" align="left"></a>
+<a href="https://www.tumblr.com/phoneyotc/795346097658855424"><img src="https://file.garden/ZSKBCu3coQFc9mb7/git" width="550px" align="left"></a>
 <br>────────────────────── 
 <br>ain't that a kick in the head ?
   
