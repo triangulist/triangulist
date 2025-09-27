@@ -1,8 +1,12 @@
-<p align="center"> ──────────────────────────────────────── </p>
-<p align="center"> ain't that a kick in the head? </p>
-<p align="center"> <img src="https://file.garden/ZSKBCu3coQFc9mb7/courier6"> </p>
-
-<p align="center"> <a href="https://bundlrs.cc/irradiated">pt bundlrs</a> <a href="https://courier.atabook.org/">atabook</a> <a href="https://pronouns.cc/@courier">prns.cc</a></p>
-
-<p align="center"> <sub> ic <a href="https://www.tumblr.com/protosymphonette/754390747969617920/heyyyy-promise-not-to-be-mad-buuuuut-i-turned">protosymphonette</a> on tumblr </sub> </p>
-<p align="center"> ──────────────────────────────────────── </p>
+<div align="center">
+<a href="https://www.tumblr.com/phoneyotc/795346097658855424"><img src="https://file.garden/ZSKBCu3coQFc9mb7/git" width="650px" align="left"></a>
+<br>
+────────────────────────  
+<br>ain't that a kick in the head ?
+  
+<br><img src="https://file.garden/ZSKBCu3coQFc9mb7/f16.gif"><img src="https://file.garden/ZSKBCu3coQFc9mb7/Tumblr_l_335528118349845.jpg"><img src="https://file.garden/ZSKBCu3coQFc9mb7/Tumblr_l_335540569128922.gif">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gsv27q2whwqtzne9cegyhvryx&cover_image=true&theme=novatorem&show_offline=true&background_color=694840&interchange=false&bar_color=e14d4d&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=gsv27q2whwqtzne9cegyhvryx&redirect=true)
+<br><img src="https://file.garden/ZSKBCu3coQFc9mb7/Tumblr_l_335548258822153.gif">
+<br><a href="https://bundlrs.cc/irradiated">bundlrs</a> <a href="https://courier.atabook.org">ata</a> <a href="https://pronouns.cc/courier">prnscc</a>
+───────────────────────
